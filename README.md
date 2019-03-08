@@ -6,4 +6,4 @@ tugas-labkom-2019-xi-9-john-locke created by GitHub Classroom
 4. M. Genta Zuan Nur Illyasa (17.63.08735)
 5. M. Mirza Hadi Firmansyah (17.63.08
 6. Putri Novitasary Hartono (17.63.08780)
-7. Wafa Fitriani (17.63.08840)
+7. Wafa Fitriyani (17.63.08840)
